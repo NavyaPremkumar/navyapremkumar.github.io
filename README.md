@@ -1,1 +1,1 @@
-# navyapremkumar.github.io
+# NavyaPremkumar.github.io
